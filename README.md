@@ -1,2 +1,2 @@
-# -Blizzard-s-Big-Surprise-Warcraft-1-2-Remastered-Warcraft-3-Reforged-Overhaul-
+**Blizzard shadow drops Warcraft 1 + 2 remastered, as well as a Warcraft 3 reforged overhaul** (https://thevaryfar.xyz/blizzard-shadow-drops-warcraft-1-2-remastered-as-well-as-a-warcraft-3-reforged/)
 Blizzard Entertainment has taken fans by storm with remastered Warcraft 1 and 2 editions, plus a major Warcraft 3 Reforged update! 🕹️ Dive back into the classic RTS games with enhanced graphics, improved gameplay, and modern features! Whether you're a longtime fan or a newcomer, the timeless Warcraft universe is ready for 🌟🎮 Read more...
